@@ -5,7 +5,6 @@
 #### $\color{cyan}{\text{﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
 ## $\color{turquoise}{\text{my name is var, you can also call me kei! ,, var preferred}}$ 
-### $\color{turquoise}{\text{you can call me vis too, since i mainly cosplay daquavis}}$
 ## $\color{turquoise}{\text{i like rain world, dsmp, varmintz, regular show, n' rodamrix}}$ 
 ### $\color{turquoise}{\text{c+h is just fine, if you wanna then go on}}$ 
 ## $\color{turquoise}{\text{im from Indonesia}}$  <img src="Flag_of_Indonesia.svg.png" width="20" height="10">
@@ -15,6 +14,6 @@
 
 # [Interact less lists (IWC)](https://github.com/varskei/varskei/blob/main/iwc.md)
 
-#### $\color{teal}{\text{might look bad, im not really that good at coding}}$ 
+#### $\color{teal}{\text{THIS LOOKS BAD DUDEE}}$ 
 
 </div>
