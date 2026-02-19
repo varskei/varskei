@@ -5,7 +5,7 @@
 #### $\color{cyan}{\text{﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏}}$
 
 ## $\color{turquoise}{\text{my name is var, you can also call me kei! ,, var preferred}}$ 
-## $\color{turquoise}{\text{i like rain world, dsmp, varmintz, regular show, n' rodamrix}}$ 
+## $\color{turquoise}{\text{i like tbz, dsmp, varmintz, regular show, n' rodamrix}}$ 
 ### $\color{turquoise}{\text{c+h is just fine, if you wanna then go on}}$ 
 ## $\color{turquoise}{\text{im from Indonesia}}$  <img src="Flag_of_Indonesia.svg.png" width="20" height="10">
 ### $\color{turquoise}{\text{spread positivity💚}}$ 
